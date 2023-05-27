@@ -1,3 +1,3 @@
 # Site-Ninja
-#Hoje tem gol di Ribamar
+#Hoje tem gol do Ribamar
 
